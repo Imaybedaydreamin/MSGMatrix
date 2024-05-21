@@ -1,1 +1,1 @@
-purely a persoanl update repo.
+purely a personal update repo.
